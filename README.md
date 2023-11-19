@@ -15,7 +15,7 @@
 ## 📫 İletişim
 
 - LinkedIn: [Doğan Emre](https://www.linkedin.com/in/doganemree01/)
-- Twitter: [@doganemree](https://twitter.com/doganemree)
+- Twitter: [@doganemree](https://twitter.com/home?lang=tr)
 
 ## 🎯 Kişisel Hedefler
 
